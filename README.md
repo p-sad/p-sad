@@ -1,1 +1,1 @@
-![wall](https://user-images.githubusercontent.com/21345040/226173833-c0968cab-80eb-4453-8ebb-57c6a5cedc7c.jpg)
+![stats](https://github.com/p-sad/p-sad/assets/21345040/32c3cecc-1d63-47f4-bbcd-db09c246b462)
